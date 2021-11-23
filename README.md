@@ -1,1 +1,1 @@
-# maket_1
+# https://luckshery.github.io/maket_1/
